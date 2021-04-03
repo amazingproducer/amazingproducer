@@ -1,4 +1,4 @@
-### Hi there 👋
+### Discreetly serving discrete parties in the development of amazing products.
 
 <!--
 **amazingproducer/amazingproducer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
